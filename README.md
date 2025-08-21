@@ -1,5 +1,5 @@
 𝗔𝗕𝗢𝗨𝗧 𝗠𝗘 : 
-Hey am Sachveer . Learing Python and frontend
+Hey am Sachveer . Learing Python , Frontend and Adobe Aftereffect
 
 
 𝗦𝗢𝗖𝗜𝗔𝗟𝗦  : 
